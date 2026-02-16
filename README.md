@@ -13,8 +13,8 @@
   Pronouns: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱 and LIETUVA 🇱🇹</strong><br>
   Languages: 한국어(N), English, polski, русский<br>
-  Maybe... someday?: Deutsch, lietuvių<br>
-  (de facto: German + Every Balto-Slavic language)<br><br>
+  Still Learning: Deutsch, lietuvių<br>
+  (Goal: German + Every Balto-Slavic language)<br><br>
 
   I wreszcie co <strong>NIE</strong> mniej ważne...<br>
   <strong>BARDZO KOCHAM POLSKĘ 🇵🇱🇵🇱🇵🇱</strong><br>
