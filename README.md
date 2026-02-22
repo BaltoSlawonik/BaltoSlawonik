@@ -12,8 +12,8 @@
   17M, South Korean (Born on 21 January 2009)<br>
   Pronouns: He/Him<br>
   Favorite country: <strong>POLSKA 🇵🇱 and LIETUVA 🇱🇹</strong><br>
-  Languages: 한국어(N), English, polski, русский<br>
-  Still Learning: Deutsch, lietuvių<br>
+  Languages: 한국어(N), English, polski, українська, lietuvių, Deutsch, русский<br>
+  Still Learning: čeština, srpskohrvatski, latviešu<br>
   (Goal: German + Every Balto-Slavic language)<br><br>
 
   I wreszcie co <strong>NIE</strong> mniej ważne...<br>
